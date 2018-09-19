@@ -1,0 +1,2 @@
+Sau khi xuất hiện các biểu hiện bệnh học của thoái hóa khớp tay, nếu không được điều trị kịp thời và đúng cách thì về lâu dài có thể khiến cho bệnh nhân bị dính khớp, teo cơ, biến dạng cổ tay và mất đi chức năng vận động của bàn tay.
+https://www.linkedin.com/pulse/tho%C3%A1i-h%C3%B3a-kh%E1%BB%9Bp-tay-nguy%C3%AAn-nh%C3%A2n-tri%E1%BB%87u-ch%E1%BB%A9ng-v%C3%A0-c%C3%A1ch-ch%E1%BB%AFa-b%E1%BB%87nh-kh%E1%BB%9Bp?published=t
